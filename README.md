@@ -1,0 +1,7 @@
+- 👋 Olá, sou @ovo26
+- 👀 Estou interessado em estudar.
+- 🌱 Atualmente estou aprendendo ciencias biologicas.
+- 💞️ Procuro colaborar em aprender sempre e estar com a familia.
+- 📫 Como entrar em contato comigo 0001106750366sp@al.educacao.sp.gov.br.
+- 😄 Pronomes: ela/dela.
+- ⚡ Curiosidade: gosto de desenhos animados.
